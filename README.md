@@ -1,2 +1,2 @@
 # proyecto
-graias por creer en nosotros jejeje
+gracias por creer en nosotros jejeje
